@@ -1,2 +1,1 @@
 # Graphic-design
-Alguns trabalhos
